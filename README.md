@@ -21,6 +21,6 @@ Forneça as 5 principais fontes de dados para o conhecimento da análise técnic
 Quais as estratégias mais conhecidas e consideradas as melhores na análise técnica?
 <p></p>
 <p></p>
-Verifique lá
+Verifique lá:
 <p></p>
 https://notebooklm.google.com/notebook/20655844-2906-4534-9e8a-50b40bc305fe
